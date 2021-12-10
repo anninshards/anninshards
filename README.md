@@ -4,3 +4,4 @@
 - TG: @anninshards
 - Email: anna.tiutiunnyk@yalantis.net
 - LinkedIn: @anninshards
+## P.S. We’d be happy if you joined us! ❤️
