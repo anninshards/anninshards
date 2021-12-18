@@ -1,4 +1,4 @@
-# Hi there 👋 My name is Ann and I'm a Talent Sourcer at Yalantis
+# Hi there 👋 My name is Anna and I'm a Talent Sourcer at Yalantis
 ## I’m looking for new talents for our teams!
 📫 Feel free to contact me 
 - TG: @anninshards
