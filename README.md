@@ -4,5 +4,5 @@
 📫 Feel free to contact me 
 - TG: @at_solidgate
 - Email: anna.tiutiunnyk@solidgate.com
-- LinkedIn: linkedin.com/in/anninshards/
+
 
