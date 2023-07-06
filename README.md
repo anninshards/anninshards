@@ -16,5 +16,5 @@ https://linktr.ee/solidgate
 - Connect on LinkedIn
 - Skype: live:1a75ae08612f9d88
 
-See you soon!
+## See you soon!
 
