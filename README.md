@@ -1,4 +1,5 @@
-## Hello! <p> I'm Anna, a dedicated and passionate Talent Acquisition Specialist from Solidgate 🇺🇦
+## Hello! 
+I'm Anna, a dedicated and passionate Talent Acquisition Specialist from Solidgate 🇺🇦
 My goal is to help you identify and secure the ideal job opportunity that aligns perfectly with your career goals.
 
 ## 👩🏻‍💻 And here's some information about Solidgate:
