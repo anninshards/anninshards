@@ -6,7 +6,7 @@ My goal is to help you identify and secure the ideal job opportunity that aligns
 We are a B2B product in the field of online payments. We build «made in Ukraine» fintech solutions that help businesses accept payments and ensure a smooth purchase experience for their clients from Europe to LATAM, from the USA to Asia. 
 We are part of the history of each company we work with — and we help them enter new markets and increase their profits. Furthermore, we believe no company should struggle with payments. So we make them easy.
 
-Together, let's create something great right now! If you are interested in any of our job openings or have any questions, please don't hesitate to reach out to me 😉
+Together, let's create something great right now! If you are interested in any of our job openings or have any questions, please don't hesitate to reach out to me 👌🏻
 
 ## 📩 You can get in touch with me through:
 - Email: anna.tiutiunnyk@solidgate.com 
