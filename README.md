@@ -12,9 +12,9 @@ Together, let's create something great right now! If you are interested in any o
 - https://linktr.ee/solidgate
 
 ## 📩 You can get in touch with me through:
-- • Email: anna.tiutiunnyk@solidgate.com
-- • Connect on LinkedIn
-- • Skype: live:1a75ae08612f9d88
+- Email: anna.tiutiunnyk@solidgate.com
+- Connect on LinkedIn
+- Skype: live:1a75ae08612f9d88
 
 See you soon!
 
