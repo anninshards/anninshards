@@ -9,8 +9,8 @@ We are part of the history of each company we work with — and we help them ent
 Together, let's create something great right now! If you are interested in any of our job openings or have any questions, please don't hesitate to reach out to me 😉
 
 ## 📩 You can get in touch with me through:
-- Email: anna.tiutiunnyk@solidgate.com
-- Connect on LinkedIn
+- Email: anna.tiutiunnyk@solidgate.com 
+- Connect on <a href="https://www.linkedin.com/in/annatiutiunnyk/">Linedin</a>
 - Skype: live:1a75ae08612f9d88
 
 ## See you soon!
